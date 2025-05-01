@@ -28,6 +28,7 @@
 - 📫 How to reach me:  
   - Email: [bagasiyain205@gmail.com](mailto:bagasiyain205@gmail.com)  
   - LinkedIn: [[Bagas Gilang Ramadhan]](https://www.linkedin.com/in/bagas-gilang-ramadhan-0119a9252/)(#) 
+  - website : bagasgr.my.id
 
 - 😄 Pronouns: He/Him  
 
